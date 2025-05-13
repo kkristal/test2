@@ -1,1 +1,1 @@
-# test2
+www.seznam.cz
